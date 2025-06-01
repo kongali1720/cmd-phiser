@@ -100,14 +100,14 @@ Kalau kamu suka project ini, bantu dengan:
 
 ---
 
-<h2 align="center">☕ Traktir Hukumnya Harus ya GUYSSS!!!</h2>
+<h2 align="center">💡 ☕ Traktir Kopi & Nasi Goreng 😄</h2>
 
 <div align="center">
 
-# 💡 ☕ Traktir Kopi & Nasi Goreng 😄
-## Dukung terus biar semangat bikin simulasi edukatif lainnya...
+## Dukung terus biar semangat bikin karya edukatif lainnya...
 
-# [Buy Me a Coffee via PayPal](https://www.paypal.com/paypalme/bungtempong99)  
+# 💡 ☕  [Buy Me a Coffee via PayPal](https://www.paypal.com/paypalme/bungtempong99)  
+
 Support with ☕ so I can buy 🍜 and keep being 🧠!
 
 ---
